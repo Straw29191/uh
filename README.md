@@ -9,3 +9,7 @@ It's not a lie, you are our 10,000,000 Visitor!
  Click down here for your Prize!, Only Computer, PC are allowed
                                             
  -> https://captainchicky.github.io/Idiot!/Converted/Idiot!.html<-
+
+ or it can be fixed like                   It's not a lie, you are our 11,000,000 Visitor! Click down here for your Prize!, Only Computer, PC are allowed                                                                      
+
+                                                          -> https://captainchicky.github.io/Idiot!/Converted/Idiot!.html<-                                                                                                            
